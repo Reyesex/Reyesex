@@ -1,6 +1,6 @@
 **Selam ben [Rys?](https://github.com/Reyesex)** 
 
-![](https://komarev.com/ghpvc/?username=your-github-Reyesex&color=blue)
+![](https://komarev.com/ghpvc/?username=your-github-Reyesex&color=d6f2ff)
 
 **Bana Ulaşmak için:** 
 
