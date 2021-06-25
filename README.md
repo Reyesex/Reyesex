@@ -1,4 +1,4 @@
-**Selam ben [Reyesex?](https://github.com/Reyesex)!**
+**Selam ben [Rys?](https://github.com/Reyesex)**
 
 **Bana Ulaşmak için:** 
 
