@@ -1,4 +1,4 @@
-**Selam ben [Rys?](https://github.com/Reyesex)**
+**Selam ben [Rys?](https://github.com/Reyesex)** ![](https://komarev.com/ghpvc/?Reyesex=your-github-Reyesex&color=dc143c)
 
 **Bana Ulaşmak için:** 
 
